@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- Web Developer ⚡
+- Designer 🎨
+ 
+You can find me on everywhere as `zavbala`  
